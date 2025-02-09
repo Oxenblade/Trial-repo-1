@@ -1,4 +1,4 @@
 # Trail
 
 
-Yo , Iam yoshitha 
+Yo, I am yoshitha Ekanayake
